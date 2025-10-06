@@ -1,5 +1,6 @@
 # li-7biti
 li 7biti
-tynrgttrhtryhd
-kdfghj
-dfghjk
+qsdfghjklm
+azertyuiop
+
+wxcvbn,;:!
